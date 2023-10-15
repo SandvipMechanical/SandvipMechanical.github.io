@@ -61,13 +61,13 @@ Are you seeking expert MEP solutions for your construction projects? Are you loo
 
 
 **We Cater To Various Industries:**
-•	*Residential:* Homes, Apartments, Condominiums
-•	*Commercial:* Office Buildings, Retail Spaces
-•	*Hospitality:* Hotels, Resorts
-•	*Recreation:* Sports Facilities, Entertainment Centers
-•	Parking Garages 
-•	Swimming Pools 
-•	Ice Rinks 
+- *Residential:* Homes, Apartments, Condominiums
+- *Commercial:* Office Buildings, Retail Spaces
+- *Hospitality:* Hotels, Resorts
+- *Recreation:* Sports Facilities, Entertainment Centers
+- Parking Garages 
+- Swimming Pools
+- Ice Rinks 
 
 **Contact Us Today!**
 Phone: 347 567 2763
