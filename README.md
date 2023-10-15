@@ -70,5 +70,9 @@ Are you seeking expert MEP solutions for your construction projects? Are you loo
 - Ice Rinks 
 
 **Contact Us Today!**
-Phone: 347 567 2763
-Email: sandvipmechanical@gmail.com
+
+
+**Phone:** 347 567 2763
+
+
+**Email:** sandvipmechanical@gmail.com
