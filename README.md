@@ -2,10 +2,10 @@
 
 Are you seeking expert MEP solutions for your construction projects? Are you looking to reduce your carbon footprint and lower energy costs? Look no further! Sandvip Mechanical Inc. is your one-stop destination for premium Mechanical, Electrical, and Plumbing designs.
 
-At Sandvip Mechanical Inc., our team of professional MEP engineers is dedicated to providing top-notch design, consulting, and commissioning services for buildings across Tennessee and New York. We ensure full compliance and expedited project approvals.
+At Sandvip Mechanical Inc., our team of professional MEP engineers is dedicated to providing top-notch design, consulting, and commissioning services for buildings across New York, New Jersey, Pennsylvania, Florida, and Tennessee. We ensure full compliance and expedited project approvals.
 
 **Why Choose Us:**
-1.	**Expertise in Diverse Settings:** Our engineers are adept at tackling unique challenges in both Tennessee and New York. 
+1.	**Expertise in Diverse Settings:** Our engineers are adept at tackling unique challenges across New York, New Jersey, Pennsylvania, Florida, and Tennessee. 
 2.	**Commitment to Quality:** We prioritize excellence in every aspect of our work. Expect nothing less than premium solutions tailored to your project's requirements.
 3.	**Green Construction Focus:** Sustainability is at the heart of our designs. By integrating green practices, we not only meet your needs but also help reduce long-term ownership costs.
 4.	**Expert Team:** Our highly skilled engineers and consultants bring years of experience and expertise to every project.
@@ -65,14 +65,13 @@ At Sandvip Mechanical Inc., our team of professional MEP engineers is dedicated 
 - *Commercial:* Office Buildings, Retail Spaces
 - *Hospitality:* Hotels, Resorts
 - *Recreation:* Sports Facilities, Entertainment Centers
-- Parking Garages 
-- Swimming Pools
-- Ice Rinks 
+- *Parking Garages* 
+
 
 **Contact Us Today!**
 
-
-**Phone:** 347 567 2763
-
+**Phone:** 347 567 2763 
+**Phone:** 912 220 3271
 
 **Email:** sandvipmechanical@gmail.com
+**Email:** mkakbar@gmail.com
