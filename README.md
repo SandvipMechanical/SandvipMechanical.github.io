@@ -1,8 +1,8 @@
 # Sandvip Mechanical Inc.
 
-At Sandvip Mechanical Inc., our team of professional MEP engineers is dedicated to providing top-notch design, consulting, and commissioning services for buildings across Tennessee and New York. We ensure full compliance and expedited project approvals.
-
 Are you seeking expert MEP solutions for your construction projects? Are you looking to reduce your carbon footprint and lower energy costs? Look no further! Sandvip Mechanical Inc. is your one-stop destination for premium Mechanical, Electrical, and Plumbing designs.
+
+At Sandvip Mechanical Inc., our team of professional MEP engineers is dedicated to providing top-notch design, consulting, and commissioning services for buildings across Tennessee and New York. We ensure full compliance and expedited project approvals.
 
 **Why Choose Us:**
 1.	**Expertise in Diverse Settings:** Our engineers are adept at tackling unique challenges in both Tennessee and New York. 
