@@ -58,3 +58,17 @@ Are you seeking expert MEP solutions for your construction projects? Are you loo
     - Power distribution systems
     - Lighting design and control
     - Cutting-edge electrical solutions
+
+
+**We Cater To Various Industries:**
+•	*Residential:* Homes, Apartments, Condominiums
+•	*Commercial:* Office Buildings, Retail Spaces
+•	*Hospitality:* Hotels, Resorts
+•	*Recreation:* Sports Facilities, Entertainment Centers
+•	Parking Garages 
+•	Swimming Pools 
+•	Ice Rinks 
+
+**Contact Us Today!**
+Phone: 347 567 2763
+Email: sandvipmechanical@gmail.com
